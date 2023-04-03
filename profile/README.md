@@ -10,3 +10,7 @@ I'm not -iknack
 
 https://discord.gg/qYgzqJGuEf updates there
 (Pls join I need clout)
+
+We love getting laid
+
+We hate Jews and Hitler was kewl
