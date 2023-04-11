@@ -14,3 +14,7 @@ https://discord.gg/qYgzqJGuEf updates there
 We love getting laid
 
 We hate Jews and Hitler was kewl
+
+L PlutoSolutions got taken down
+
+Fuck em we up know 
